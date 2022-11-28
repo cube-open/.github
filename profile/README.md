@@ -10,8 +10,8 @@
 - QQ Public Group: **701451067**
 
 # Join us
-Application questionnaire: <a href="https://docs.qq.com/form/page/DVlJ4YUdJUkpiY1hO">https://docs.qq.com/form/page/DVlJ4YUdJUkpiY1hO</a>
 Our review may take a long time. You can join our QQ Group
+Application questionnaire: <a href="https://docs.qq.com/form/page/DVlJ4YUdJUkpiY1hO">https://docs.qq.com/form/page/DVlJ4YUdJUkpiY1hO</a>
 
 # Copyright
 
