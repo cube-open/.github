@@ -9,7 +9,7 @@
 - Email: **lichen143@outlook.com**
 - QQ Public Group: **701451067**
 - Discord Public: **<a href="https://discord.gg/3sVbZVDFeu">Cube Studio.Public</a>**
-- Telegram Public: **<a href="https://t.me/+6EwUFAyavNA4OWVl">Cube Studio Telegram Public</a>**
+- Telegram Public: **<a href="https://t.me/cubestd">Cube Studio Telegram Public</a>**
 
 # Join us
 Our review may take a long time. You can join our QQ Group
